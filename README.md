@@ -1,2 +1,0 @@
-# dailypriceshot
-# dailypriceshot
